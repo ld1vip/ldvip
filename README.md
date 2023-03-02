@@ -22,9 +22,9 @@
 
 ### 苹果原生APP下载地址：
 
-### [苹果原生APP下载地址一](https://xyd6699.github.io/1/)<br>  
-### [苹果原生APP下载地址二](https://xyd6699.github.io/-APP-2/)<br> 
-### [苹果原生APP下载地址三](https://xyd6699.github.io/app3/)<br>
+### [苹果企业签下载地址](https://xyd6699.github.io/1/)<br>  
+### [苹果MDM签下载地址](https://xyd6699.github.io/-APP-2/)<br> 
+### [苹果个人签下载地址](https://xyd6699.github.io/app3/)<br>
 
 
 # 乐动体育回家页简介
