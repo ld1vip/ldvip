@@ -2,6 +2,10 @@
 
 ### 乐动体育手机H5浏览地址：
 
+### [lddd8.vip](https://lddd8.vip)<br>
+
+### [lddd3.com](https://lddd3.com)<br>
+
 ### [ldvip45.com](https://ldvip45.com)<br>
 
 ### [ldvip64.com](https://ldvip64.com)<br> 
